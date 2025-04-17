@@ -1,6 +1,10 @@
 # takipcial
 takipci.al sitesi güvenilir ve gerçek instagram takipçi satın al paketleri sunuyor. Ucuz, %100 Türk ve aktif hizmetler.
 
+<a href="https://takipci.al/">
+  <img src="https://github.com/user-attachments/assets/a00fca94-e4c2-4254-99bb-d3f435551f4d" width="800" />
+</a>
+
 Takipçi Al ile Güvenilir ve Kaliteli Instagram Takipçi Satın Alma Deneyimi
 Instagram'da görünür olmak, hedef kitlene ulaşmak ve içeriklerinin daha fazla kişi tarafından görülmesini sağlamak artık hiç olmadığı kadar önemli. Özellikle bireysel kullanıcılar, influencer'lar ve markalar için Instagram’da güçlü bir profil oluşturmak neredeyse bir zorunluluk haline geldi. Ancak sıfırdan başlayarak organik bir büyüme yakalamak, oldukça uzun zaman ve çaba isteyen bir süreçtir. İşte bu noktada devreye Takipçi Al giriyor.
 
